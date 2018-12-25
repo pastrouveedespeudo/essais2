@@ -1,7 +1,6 @@
 La c'est bon ^^
 
-
- finir le truk dimage deja ^^
+mon ancien repository me manque ='( toutes mes données me manques ='(
  
 par contre j'ai la gerbe mtn j'ai test de upprimer mes autres compte impossiblee
  
