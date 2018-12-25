@@ -3,7 +3,7 @@ La c'est bon ^^
 
  finir le truk dimage deja ^^
  
-
+par contre j'ai la gerbe mtn j'ai test de upprimer mes autres compte impossiblee
  
  
  1 faire le truk synergo pour decrypter les gestes
