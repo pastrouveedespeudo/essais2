@@ -3,7 +3,7 @@ La c'est bon ^^
 
  finir le truk dimage deja ^^
  
-oh ca m'a foutu le seum ca ^^
+
  
  
  1 faire le truk synergo pour decrypter les gestes
