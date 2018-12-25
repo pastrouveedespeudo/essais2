@@ -2,8 +2,11 @@ La c'est bon ^^
 
 mon ancien repository me manque ='( toutes mes données me manques ='(
  
-par contre j'ai la gerbe mtn j'ai test de upprimer mes autres compte impossiblee
- 
+par contre si y'avait des mecs pleins de thune qui te mattaient, et qui mtn vont voir aucun nouveau travailles
+
+ils vont aussi se dire que j'ai pété un cable et que je bosse plus amis au moins mtn jpe me dire des truk du genre
+
+j'adore me curer le nez apres la douche et les balancer !
  
  1 faire le truk synergo pour decrypter les gestes
 
